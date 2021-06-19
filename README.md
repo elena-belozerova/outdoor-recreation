@@ -1,1 +1,1 @@
-# Outdoor-recreation.github.io
+# outdoor-recreation.github.io
